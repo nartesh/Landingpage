@@ -1,1 +1,1 @@
-# Meine GitHub Website
+https://syoxz.github.io
